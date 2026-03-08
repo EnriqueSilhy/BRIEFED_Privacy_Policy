@@ -21,4 +21,4 @@ While we are committed to a "zero-data" philosophy, we may update this Privacy P
 User Advisory: You are advised to review this policy periodically for any changes. Continued use of the app after an update constitutes acceptance of the revised terms.
 
 5. Contact Us
-If you have any questions regarding this Privacy Policy or the "Briefed" philosophy, please feel free to reach out at **sammuelsilhy@gmail.com** .
+If you have any questions regarding this Privacy Policy or the "Briefed" philosophy, please feel free to reach out at **sammuelsilhy@outlook.com** .
